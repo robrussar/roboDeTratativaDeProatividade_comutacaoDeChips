@@ -1,0 +1,1 @@
+# roboDeTratativaDeProatividade_comutacaoDeChips
